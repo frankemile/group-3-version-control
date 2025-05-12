@@ -1,2 +1,6 @@
 # group-3-version-control
-work submittion
+mpawenayo frank emile,
+manishimwe alicia,
+iranzi mpano roger,
+uwinema innocente,
+niyokuba sandrine.
